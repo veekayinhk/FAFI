@@ -1,3 +1,3 @@
 - 👋 Hi, this is @veekayinhk.
-- 👀 This is where I *F*___ *A*round and *F*ind *I*nteresting stuff!!
+- 👀 This is where I **F**___ **A**round and **F**ind **I**nteresting stuff I want to share
 - 📫 Reach me by leaving a comment
